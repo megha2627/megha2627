@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **meghagupta270505@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Yo-o0abFdGDC0NHISGYs7emETkgzhsdH/view?usp=sharing](https://drive.google.com/file/d/1-tWxUDK7VCZSkWLoOqjOmPfVBgEzGCKx/view?usp=sharing).
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Yo-o0abFdGDC0NHISGYs7emETkgzhsdH/view?usp=sharing](https://drive.google.com/file/d/1GKA0t2KtE0SyVWayIUCnDwECd0I4kwt5/view?usp=sharing).
 
 - ⚡ Fun fact **I think I am funny**
 
